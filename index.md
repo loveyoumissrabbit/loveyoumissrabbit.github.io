@@ -8,3 +8,4 @@
 
 ### 2020年3月12日 
 <a href="https://sm.ms/image/N4LctmY9rqa7IFf" target="_blank"><img src="https://i.loli.net/2020/05/04/N4LctmY9rqa7IFf.jpg" ></a>
+![兔子写给我的小作文.jpg](https://i.loli.net/2020/05/04/N4LctmY9rqa7IFf.jpg)
